@@ -70,3 +70,18 @@ Testimonies and accounts of the Jammu Genocide
                 my life but my old parents, brothers, sons and daughters who had
                 boarded the trucks with myself, I have not heard of them since
                 then."
+                
+5. Revealing his experiences in the disturbed areas of Jammu, Mr. Reddy said in an Interview in Lahore:
+
+                "The mad orgy of Dogra violence against unarmed Muslims should
+                put any self-respecting human being to shame. I saw armed bands
+                of ruffians and s~!diers shooting down and hacking to pieces
+                helpless Muslim refugees heading towards Pakistan. My pain and
+                agony was heightened by what I saw at the village of Rajpura where
+                the State officials and military officers were directing a huge armed
+                mob against a Muslim refugee convoy and got it hacked to pieces. I
+                saw en route State officials freely distributing arms and ammunition
+                among the Dogras. From the -hotel room where I was detained in
+                Jammu I counted as many as 24 villages burning one night and all
+                through the night rattling fire of automatic weapons could be heard
+                from the surrounding refugee camps."
