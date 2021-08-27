@@ -27,6 +27,8 @@ Testimonies and accounts of the Jammu Genocide
         I walked from Jammu to Sialkot carrying just one handbag.
 
 4. What happened to them is reproduced below in the words of the Second master of the Samba High School who was one of the passengers:
+
+
                 "Among them were my old parents, three brothers, two sons and two
                 daughters. The trucks started at 2 p.m. At Satwari Cantonment we
                 found Hindus and Sikhs assembled on both sides of the road and
