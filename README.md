@@ -87,3 +87,31 @@ Testimonies and accounts of the Jammu Genocide
                 Jammu I counted as many as 24 villages burning one night and all
                 through the night rattling fire of automatic weapons could be heard
                 from the surrounding refugee camps."
+                
+6. One of the eye witnesses to this incident, Abdul Qayum Qureshi,  recalled that there was a big ground where refugees were camping. Volunteers were guarding them, but everybody lived in a state of fear. The extremists and Dogra soldiers had besieged the area but they did not dare to enter inside. Muslim volunteers led by a former army official Captain Naseer-u-din defended the camp bravely. 
+
+                “Meanwhile a fresh group of refugees arrived but the ground was full so they were
+                accommodated in an empty Haveli (a mansion). But the killers had taken positions 
+                in a trench close to the Haveli. And when people entered the Haveli premises, the
+                killers started indiscriminate firing, but the Muslim volunteers fought back. Then
+                a Dogra official, Chetan Chopra, arrived with the message that he wanted to talk to
+                Captain Naseer-ud-din. Around 4 PM Captain Naseer returned saying the administration
+                has announced a ceasefire and assured that the violators will be punished,” Qureshi recalled.
+                
+ According to him the ceasefire continued for seven days but the situation remained tense. On 5 November Muslims were asked to assemble in the police lines Jammu.              
+               “I remember about 26 trucks and buses were present in the police grounds. People were ordered
+               to board the vehicles so that they could be driven to Pakistan via Sialkot border. The Dogra
+               officials circulated a rumor that these vehicles have reached Pakistan. We had absolutely no ide
+               a that they were butchered in the Kuthwa and Samba forests.”
+
+Qureshi says that on 6 November a caravan of refuges in buses and trucks was driven towards the border area. 
+
+                “I was also part of this caravan. But after half an hour drive the entire caravan was turned 
+                 towards Bisna. Around 11 AM all of us, about 6000, were dragged out of the buses. Then they 
+                 fired at us indiscriminately. The bloodbath continued for nearly three hours; like other
+                 people I took refuge in a canal,” he said.
+                 
+Qureshi recalls that people hid under thorny bushes and wherever they could. At 3 PM the Dogra officials asked the survivors to come out hiding so that they could be driven to safe places. 
+                “Having no alternative we came out, and fortunately on the directives of 
+                Sheikh Muhammad Abdullah we were later shifted to a refugee camp in Jammu. Only 250 had survived.
+                My father was in the Valley and my two brothers were in Mirpur,” he said.
