@@ -152,5 +152,13 @@ Qureshi recalls that people hid under thorny bushes and wherever they could. At 
                 arms to the marauders of his community," he said, adding the killers were trained and armed 
                 in RSS camps for the genocide.
                 
+8. Another Kashmiri migrant from Jammu, Muhammad Khan Naqashbandi, told Greater Kashmir that his mother was killed and three sisters were abducted by the marauders while they were traveling to Pakistan. Two of his sisters were recovered, but the youngest sister Suraya was still missing.
+
+                Teary eyed Khan said, "My sister is still missing and I don't know whether she is alive or dead.
+                I survived because I was studying in Lahore when the carnage occurred. No Muslim can forget that genocide."
+                Naqashbandi said the slaughter was well planned and rehearsed to prevent people from acceding to Pakistan.
+                Muslims were slaughtered at Mavera near Samba on November 5 and the next day carnage was carried out near 
+                cantonment in Satvari.'OUT OF 6000, 250 SURVIVED'              
+               
 
 
