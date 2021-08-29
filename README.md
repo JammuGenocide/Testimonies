@@ -120,3 +120,22 @@ Qureshi recalls that people hid under thorny bushes and wherever they could. At 
 
 `Reference: The Kashmir Today`
 
+7. Rashid's father, brothers, sisters, wife, and a son were slaughtered Malik Abdul Rashid, a survivor from Reasi, currently settled in Rawalpindi, says he was 22-year old when the carnage happened.
+
+                "Men, women, children were killed in the cruelest manner, maimed, intimidated. The carnage continued
+                 for several days. I lost my father, brothers, sisters, wife, and a son," Rashid said.
+                 
+                "I lost all my dears; the genocide has haunted me all my life," he said. 
+                On 4 November 1947, when Dogra troops entered Reasi, two highly esteemed 
+                citizens of the town, Khwaja Amkullah and Chaudhary Aziz-u-Din rushed to
+                the office of then Deputy Commissioner Thakur Gavinder Singh, complaining
+                against the entry of the troops when Peace Committees, comprising Hindus 
+                and Muslims, were already in place to maintain peace. Both of them were 
+                shot dead in the office.
+                
+               
+                "People were mowed down with machine guns and swords during the night. 
+                And those who had survived were assembled in a field where they were put
+                to death. Some women who escaped jumped into Chinab river to save their
+                honour," Rashid recounts.
+
