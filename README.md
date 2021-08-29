@@ -189,5 +189,5 @@ Qureshi narrated the horrors thus:
                 we came out, and fortunately on the directives of Sheikh Muhammad Abdullah we were later shifted to a refugee camp in Jammu.
                 Only 250 had survived. My father was in the Valley and my two brothers were in Mirpur."
 
-
+`Reference: 3 survivors recount horrors of Jammu genocide`
 
