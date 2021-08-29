@@ -99,6 +99,7 @@ Testimonies and accounts of the Jammu Genocide
                 has announced a ceasefire and assured that the violators will be punished,” Qureshi recalled.
                 
  According to him the ceasefire continued for seven days but the situation remained tense. On 5 November Muslims were asked to assemble in the police lines Jammu.              
+ 
                “I remember about 26 trucks and buses were present in the police grounds. People were ordered
                to board the vehicles so that they could be driven to Pakistan via Sialkot border. The Dogra
                officials circulated a rumor that these vehicles have reached Pakistan. We had absolutely no ide
@@ -112,6 +113,7 @@ Qureshi says that on 6 November a caravan of refuges in buses and trucks was dri
                  people I took refuge in a canal,” he said.
                  
 Qureshi recalls that people hid under thorny bushes and wherever they could. At 3 PM the Dogra officials asked the survivors to come out hiding so that they could be driven to safe places. 
+
                 “Having no alternative we came out, and fortunately on the directives of 
                 Sheikh Muhammad Abdullah we were later shifted to a refugee camp in Jammu. Only 250 had survived.
                 My father was in the Valley and my two brothers were in Mirpur,” he said.
