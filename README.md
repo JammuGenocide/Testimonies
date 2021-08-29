@@ -158,7 +158,36 @@ Qureshi recalls that people hid under thorny bushes and wherever they could. At 
                 I survived because I was studying in Lahore when the carnage occurred. No Muslim can forget that genocide."
                 Naqashbandi said the slaughter was well planned and rehearsed to prevent people from acceding to Pakistan.
                 Muslims were slaughtered at Mavera near Samba on November 5 and the next day carnage was carried out near 
-                cantonment in Satvari.'OUT OF 6000, 250 SURVIVED'              
-               
+                cantonment in Satvari.'OUT OF 6000, 250 SURVIVED'          
+                
+9. Abdul Qayum Qureshi, a witness of the genocide, hails from Dalpatian Mohalla of Jammu. Qureshi told this scribe that the blood-bath of Muslims in Jammu province had started several weeks ago but the hunt against Muslims intensified when frustrated Maharaja of the state entered into Jammu on 26 October 1947 and ordered his troops to kill Muslims wherever they can be found. Mohalla Dalpatian was a Muslim majority area where thousands of Muslims from other areas had taken shelter.
+
+
+                "There was a big ground where these refugees were camping. Volunteers were guarding them, but everybody 
+                lived in a state of fear. The extremists and Dogra soldiers had besieged the area but they did not dare
+                to enter the area. Muslim volunteers led by a former army official Captain Naseer-u-din defended the camp
+                bravely," Qureshi said.
+                
+Qureshi narrated the horrors thus:
+
+                "Meanwhile a fresh group of refugees arrived but the ground was full so they were accommodated in 
+                an empty Haveli (a mansion). But the killers had taken positions in a trench close to the Haveli.
+                And when people entered the Haveli premises, the killers started indiscriminate firing, but the Muslim
+                volunteers fought back. Then a Dogra official, Chetan Chopra, arrived with the message that he wanted to 
+                talk to Captain Naseer-ud-din. Around 4 PM Captain Naseer returned saying the administration has announced 
+                a ceasefire and assured that the violators will be punished. The ceasefire continued for seven days but the
+                situation remained tense. On 5 November Muslims were asked to assemble in the police lines Jammu. I remember
+                about 26 trucks and buses were present in the police grounds. People were ordered to board the vehicles so
+                that they could be driven to Pakistan via Sialkot border. The Dogra officials circulated a rumor that these
+                vehicles have reached Pakistan. We had absolutely no idea that they were butchered in the Kuthwa and Samaba forests.
+                
+                On 6 November a caravan of refuges in buses and trucks was driven towards the border area. I was also part of this
+                caravan. But after half an hour drive the entire caravan was turned towards Bisna. Around 11 AM all of us, about
+                6000, were dragged out of the buses. Then they fired at us indiscriminately. The bloodbath continued for nearly three
+                hours; like other people I took refuge in a canal. People hid under thorny bushes and wherever they could. At 3 PM the
+                Dogra officials asked the survivors to come out hiding so that they could be driven to safe places. Having no alternative 
+                we came out, and fortunately on the directives of Sheikh Muhammad Abdullah we were later shifted to a refugee camp in Jammu.
+                Only 250 had survived. My father was in the Valley and my two brothers were in Mirpur."
+
 
 
